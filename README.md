@@ -14,7 +14,7 @@ This application:
 
 ## Contact
 If you have any questions about this Privacy Policy, you can contact us at:
-[nights6@naver.com]
+[singleminded@hanmail.net]
 
 ## Changes to This Policy
 We may update our Privacy Policy from time to time. We will notify you of any changes by posting the new Privacy Policy on this page.
